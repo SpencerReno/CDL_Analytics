@@ -20,3 +20,8 @@ Bocage being considered as one of the most chaotic maps in vanguard for harpoint
 
 ##### Tuscan
 ![tus](https://i.gyazo.com/52fd5dbdffb47f3fb2fab4aeb694eed3.png)
+
+
+## Champs Finals/Grand Finals Hardpoint Matches
+Winners finals and grand finals hardpoint matches FaZe vs Thieves.
+![finals](https://i.gyazo.com/94ecf0baf0c116a26073c19ca396f824.png)
